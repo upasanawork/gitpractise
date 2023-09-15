@@ -5,4 +5,4 @@
 ## GitHub Tutorials
 
 ## Upasana Github 1st class
-## Upasana Gupta Githum Tutorials
+## Upasana Gupta Github Tutorials
